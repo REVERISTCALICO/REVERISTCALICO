@@ -1,4 +1,4 @@
-![](https://64.media.tumblr.com/de7fdf324ebd5a680240181f1d09684e/27657e071140aff0-75/s400x600/6ab406d3d9da6da1c8bca54c40c6c953c96779dd.gifv)
+![](https://media1.tenor.com/m/9-eMAjnadRoAAAAC/dante-devil-may-cry.gif)
 
 [retrospring](https://retrospring.net/@honokafu)  ![image](https://64.media.tumblr.com/462e429fe0603de599dbca085d7a2b25/b55b2416bafcc208-63/s75x75_c1/a4764d491dafe2e6f34023c91732eb22d1d5242b.gifv) [strawpage](https://twohundredshots.straw.page) ![](https://64.media.tumblr.com/14e74de66d7638d71f984eb416c47cb1/b55b2416bafcc208-ad/s75x75_c1/c112986ccc31760a69d421b05c438eae630a87c4.gifv) [RENTRY!!!!!!](https://rentry.co/twohundredshots)
 
