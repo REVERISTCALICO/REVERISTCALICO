@@ -1,12 +1,12 @@
 <p align="center"
  
-![](https://64.media.tumblr.com/ed33350e8e1af47fdf6acc08f45330be/0204d4661e661699-3d/s250x400/00ca26ccc2d41daaf421ea5efbb3e0c86d0965dc.pnj)
+![](https://64.media.tumblr.com/11e051b83790b2017f968547c5da6693/13b70724cbc41e24-27/s640x960/566d0cee9a1e0887d1f067dc5947db3ff855bbaf.jpg)
 <p align="center"
 
-![](https://64.media.tumblr.com/906bf8282aac1fa109927f4ddee84a55/a4ea114f891d182f-57/s400x600/5ae76b44f05a967ce709ee015def4902d91c4fbe.gifv)
+![](https://64.media.tumblr.com/856de41c51d9c698f6a89b308d34681f/40742ab1e2d898a7-4b/s1280x1920/257cdcce67ca40ac43359e681ba5031630f37ed3.pnj)
 <p align="center"
 
-![](https://64.media.tumblr.com/ed33350e8e1af47fdf6acc08f45330be/0204d4661e661699-3d/s250x400/00ca26ccc2d41daaf421ea5efbb3e0c86d0965dc.pnj)
+![](https://64.media.tumblr.com/11e051b83790b2017f968547c5da6693/13b70724cbc41e24-27/s640x960/566d0cee9a1e0887d1f067dc5947db3ff855bbaf.jpg)
 
 <p align="center"
 
