@@ -4,7 +4,7 @@
 
 <p align="center" 
 
- ![](https://64.media.tumblr.com/b9db295186f744dd2f66fab274b0f883/532cb3dba238d104-76/s640x960/4388329cde234e7e6818abe6731e7ed9fc8c73b0.gifv)
+ ![](https://64.media.tumblr.com/214a115bd38d6460bad8348f780168d7/532cb3dba238d104-a5/s640x960/8247b35eafde05da4b0de7cc86778f6bb6994aeb.pnj)
 <p align="center"
 
 [strawpage](https://twohundredshots.straw.page)   ![](https://64.media.tumblr.com/830241d8affbd5c7b3292742f7f3e13a/4a06e66238f29338-f1/s75x75_c1/ed5a45481cdbb59dbec2970df69dbcdf069ac051.gifv)  [rentry](https://rentry.co/twohundredshots)
