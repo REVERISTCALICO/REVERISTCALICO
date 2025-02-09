@@ -4,7 +4,7 @@
 
 <p align="center" 
 
- ![](https://cdn.discordapp.com/attachments/1116199668297248890/1338034556405813309/Untitled594_1.png?ex=67a99d49&is=67a84bc9&hm=20b205f9a891de08ae12d54c7989572fafbbd7ed5ad57f4fc3261f7b7e3df14c&)
+ ![](https://cdn.discordapp.com/attachments/1116199668297248890/1338036031777411152/Untitled594_1_1.png?ex=67a99ea9&is=67a84d29&hm=42499c9efdd4ff01ec00e3752071b5687e7f11464ccf4bd081581ad11b5b0913&)
 <p align="center"
 
 ![](https://64.media.tumblr.com/64293444f9517763478a14105492d46b/05e51809ca144598-90/s250x400/b53f409a82ac991568bd7365725552e2aa9b1556.gifv)
