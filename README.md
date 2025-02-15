@@ -10,7 +10,7 @@
 ![](https://64.media.tumblr.com/326febb0eb90071dc0f0c61ad95212e7/dd9dd9869ca670f0-c8/s250x400/d7f8401f165531a6a1c4ae618f56cc773071cf4e.gifv)
 <p align="center" 
  
-[strawpage](https://twohundredshots.straw.page)  ‎‎  ‎ ‎    ![](https://64.media.tumblr.com/9b626f59aa39311c70bd04d878ea777a/992b39b6ab3235eb-cb/s75x75_c1/afd3ed6c2f567dfacfeb071ff106877ab61edee3.webp)   ‎ ‎ ‎ ‎ ‎  [rentry](https://rentry.co/twohundredshots)
+[templates](https://rentry.co/kafussuperawsometemplates)  ‎‎  ‎ ‎    ![](https://64.media.tumblr.com/9b626f59aa39311c70bd04d878ea777a/992b39b6ab3235eb-cb/s75x75_c1/afd3ed6c2f567dfacfeb071ff106877ab61edee3.webp)   ‎ ‎ ‎ ‎ ‎  [rentry](https://rentry.co/twohundredshots)
 
 <p align="center"
  
