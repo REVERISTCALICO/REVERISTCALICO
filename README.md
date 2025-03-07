@@ -10,7 +10,7 @@
 ![](https://64.media.tumblr.com/57386669411e3697d18ed0ff7c84f586/d4a14c3777fbd89e-25/s250x400/5a83bc9dd9cde7070b3e22b62f82f3a12f1b78f2.gifv)
 <p align="center" 
  
-  ‎‎  ‎ ‎    ![](https://64.media.tumblr.com/9f50e48d675bb1517bc791a6bd1b5371/4149a1d35ab9816c-8c/s75x75_c1/24ef959f5295abbdc1cbb82eb43f612ea725db62.gifv)   ‎ ‎ ‎ ‎ ‎  [rentry](https://rentry.co/twohundredshots)
+[strawpage](https://spireofdeciet.straw.page/)  ‎‎  ‎ ‎    ![](https://64.media.tumblr.com/9f50e48d675bb1517bc791a6bd1b5371/4149a1d35ab9816c-8c/s75x75_c1/24ef959f5295abbdc1cbb82eb43f612ea725db62.gifv)   ‎ ‎ ‎ ‎ ‎  [rentry](https://rentry.co/twohundredshots)
 
 <p align="center"
  
