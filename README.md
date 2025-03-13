@@ -7,7 +7,7 @@
  ![](https://i.ibb.co/7JQfYXtf/03d8b08042cd7e66f9f24aaf5233c7ca.jpg)
 <p align="center"
 
-![](https://64.media.tumblr.com/57386669411e3697d18ed0ff7c84f586/d4a14c3777fbd89e-25/s250x400/5a83bc9dd9cde7070b3e22b62f82f3a12f1b78f2.gifv)
+![](https://64.media.tumblr.com/8f48a5f6c6d868ed7e9ae29ef794de35/86b0edad9abc191f-9e/s250x400/6154e2d95ac2b0aa61b544d24a93be8ad20d0120.gifv)
 <p align="center" 
  
 [strawpage](https://spireofdeciet.straw.page/)  ‎‎  ‎ ‎    ![](https://64.media.tumblr.com/9f50e48d675bb1517bc791a6bd1b5371/4149a1d35ab9816c-8c/s75x75_c1/24ef959f5295abbdc1cbb82eb43f612ea725db62.gifv)   ‎ ‎ ‎ ‎ ‎  [rentry](https://rentry.co/twohundredshots)
