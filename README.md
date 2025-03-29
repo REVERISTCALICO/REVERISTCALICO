@@ -1,7 +1,7 @@
 ![](https://64.media.tumblr.com/4655fe811a628e6725e5b8b0b8ad2c23/686fb8d9a3aaf7f1-00/s1280x1920/4df2a36b4444847845203b24ba8c933cae937cc7.pnj)
 <p align="center"
  
- ![](https://komarev.com/ghpvc/?username=twohundredshots&color=713535&label=)
+ ![](https://komarev.com/ghpvc/?username=twohundredshots&color=121D79&label=)
 <p align="center"
  
 ![](https://64.media.tumblr.com/13140e488667b2a0609ede12a7a1687e/686fb8d9a3aaf7f1-56/s640x960/dd04a7b32fbedf777b0f5f3b4ade9e13bfc69350.gifv)
