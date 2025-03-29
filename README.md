@@ -7,10 +7,10 @@ wip ugh
  ![](https://komarev.com/ghpvc/?username=twohundredshots&color=FFC4DA&label=)
 <p align="center"
  
-𐙚　⁺　　juni　!　　ꜜ　prn 𐄇 prn　heart　𝟹
+ $${\color{#FFC4DA}𐙚　⁺}  \space $$ juni　!　⁠♡　‎ she‎ ‎ ‎‎  $${\color{#FFC4DA}or}  $$‎ ‎ ‎any 	‎ ‎ :3
  <p align="center"
-  
-——　ᵔ　　sexuality　star ┊　gender　　⌓⌓
+
+ ⁽⁠⁽⁠ଘ　　aro $${\color{#FFC4DA}ace}  \space $$ 　star ┊　gender‎　　ଓ⁠⁾⁠⁾
  <p align="center"
   
 rose　:　　info 　　𓈒　　❀　　｡　 ᵔ˳ᴗ ᴗ)
