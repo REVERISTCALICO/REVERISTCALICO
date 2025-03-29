@@ -6,7 +6,7 @@
  ![](https://komarev.com/ghpvc/?username=twohundredshots&color=121D79&label=)
 <p align="center"
  
-![](https://64.media.tumblr.com/13140e488667b2a0609ede12a7a1687e/686fb8d9a3aaf7f1-56/s640x960/dd04a7b32fbedf777b0f5f3b4ade9e13bfc69350.gifv)
+![](https://64.media.tumblr.com/dce39aa233045ae956d8a264f83bc0a7/64884d33eb38802f-6c/s250x400/c0fa5ec74af6eb1257a1155eb0fe9dd063e3be1d.pnj)
 <p align="center"
  
 [strawpage](https://spireofdeciet.straw.page/)‎ ‎ ‎ ‎ ‎ ![](https://64.media.tumblr.com/d7cd07e2e7d71d921c2e930156d117ed/c6e913aea8c8a172-c8/s75x75_c1/61bbc6209d0f5e4beed0c26b2568491756b1bf09.gifv)‎ ‎ ‎ ‎ ‎ ‎ ‎ [rentry](https://rentry.co/twohundredshots)
