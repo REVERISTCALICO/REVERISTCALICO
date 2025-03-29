@@ -1,4 +1,3 @@
-wip ugh
 <p align="center"
  
 ![](https://64.media.tumblr.com/609b757237daffc4eb93ae65f98638e6/4bc68a24218aca52-8f/s1280x1920/2b253dc72e8b73a6b455544ffe3c2d224ed41ace.pnj)
