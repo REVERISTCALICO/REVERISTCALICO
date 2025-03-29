@@ -7,13 +7,13 @@ wip ugh
  ![](https://komarev.com/ghpvc/?username=twohundredshots&color=FFC4DA&label=)
 <p align="center"
  
- $${\color{#FFC4DA}𐙚　⁺}  \space $$ juni　!　⁠♡　‎ she‎ ‎ ‎‎  $${\color{#FFC4DA}or}  $$‎ ‎ ‎any 	‎ ‎ :3
+ $${\color{#FFC4DA}𐙚　⁺}  \space $$ juni　!　![](https://64.media.tumblr.com/62ab1916e3442cae36340ec52f6ae2e0/3c2c210dbc46ea24-d9/s75x75_c1/2ce8de674f3554cb3a7e37e585d6fb9663cd8cf7.webp)　‎ she‎‎ ‎  $${\color{#FFC4DA}or}  $$‎ ‎ ‎any 	‎ ‎ :3
  <p align="center"
 
- ⁽⁠⁽⁠ଘ　　aro $${\color{#FFC4DA}ace}  \space $$ 　star ┊　gender‎　　ଓ⁠⁾⁠⁾
+　:‎ ‎ :　aro $${\color{#FFC4DA}ace}  \space $$ ![](https://64.media.tumblr.com/49c50c4c7c59c33405f3d411a5576a4c/3c2c210dbc46ea24-64/s75x75_c1/0f05324837c1514de02a235a4befac40f81e6e90.pnj)‎‎ ‎ ‎ ‎ ‎ ┊　no dni　　 $${\color{#FFC4DA}ଓ⁠⁾⁠⁾}  \space $$
  <p align="center"
   
-rose　:　　info 　　𓈒　　❀　　｡　 ᵔ˳ᴗ ᴗ)
+　:　　info 　　𓈒　　❀　　｡　 ᵔ˳ᴗ ᴗ)
  <p align="center"
   
 ![](https://64.media.tumblr.com/3a1d534b73bd0bbbf709e3de20865d9d/4bc68a24218aca52-8e/s500x750/209c1466962ce7b02cb2db5f06ba9afb715913c0.pnj)
