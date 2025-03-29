@@ -3,7 +3,7 @@
 ![](https://64.media.tumblr.com/609b757237daffc4eb93ae65f98638e6/4bc68a24218aca52-8f/s1280x1920/2b253dc72e8b73a6b455544ffe3c2d224ed41ace.pnj)
 <p align="center"
  
- ![](https://komarev.com/ghpvc/?username=twohundredshots&color=544969&label=)
+ ![](https://komarev.com/ghpvc/?username=twohundredshots&color=FFC4DA&label=)
 <p align="center"
  
 ![](https://64.media.tumblr.com/3a1d534b73bd0bbbf709e3de20865d9d/4bc68a24218aca52-8e/s500x750/209c1466962ce7b02cb2db5f06ba9afb715913c0.pnj)
