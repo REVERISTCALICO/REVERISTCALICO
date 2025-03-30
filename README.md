@@ -9,7 +9,7 @@
  $${\color{#FFC4DA}𐙚　⁺}  \space $$ juni　!　![](https://64.media.tumblr.com/62ab1916e3442cae36340ec52f6ae2e0/3c2c210dbc46ea24-d9/s75x75_c1/2ce8de674f3554cb3a7e37e585d6fb9663cd8cf7.webp)　‎ she‎‎ ‎  $${\color{#FFC4DA}or}  $$‎ ‎ ‎any 	‎ ‎ :3
  <p align="center"
 
-　:‎ ‎ :　aro $${\color{#FFC4DA}ace}  \space $$ ![](https://64.media.tumblr.com/49c50c4c7c59c33405f3d411a5576a4c/3c2c210dbc46ea24-64/s75x75_c1/0f05324837c1514de02a235a4befac40f81e6e90.pnj)‎‎ ‎ ‎ ‎ ‎ ┊　 $${\color{#FFC4DA}reverist‎ ‎ calico!  　　}  \space $$ 
+　:‎ ‎ :　aro $${\color{#FFC4DA}ace}  \space $$ ![](https://64.media.tumblr.com/49c50c4c7c59c33405f3d411a5576a4c/3c2c210dbc46ea24-64/s75x75_c1/0f05324837c1514de02a235a4befac40f81e6e90.pnj)‎‎ ‎ ‎ ‎ ‎ ┊　 $${\color{#FFC4DA}c+h ‎ always!  　　}  \space $$ 
  <p align="center"
   
 ![](https://64.media.tumblr.com/ed21fd660b6388aecd478acf4d8a10d4/a41479ee2c190fff-56/s75x75_c1/e588969fceba2155d827b5c848f4de68905a6802.gifv)　:　　 $${\color{#FFC4DA}sign‎ sp‎‎}  \space $$ / ‎ ‎ ‎ $${\color{#FFC4DA}read‎ rentry}  \space $$   　　𓈒　　⁠(⁠ ⁠:⁠ ⁠˘⁠ ⁠∧⁠ ⁠˘⁠ ⁠:⁠ ⁠)
