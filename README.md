@@ -12,7 +12,7 @@
 　⁽‎ ‎ ⁠⁽‎ ‎ ⁠ଘ‎ 	‎ ‎ ‎ ‎ 　aro $${\color{#FFC4DA}ace}  \space $$ ![](https://64.media.tumblr.com/49c50c4c7c59c33405f3d411a5576a4c/3c2c210dbc46ea24-64/s75x75_c1/0f05324837c1514de02a235a4befac40f81e6e90.pnj)‎‎ ‎ ‎ ‎ ‎ ┊　 $${\color{#FFC4DA}c+h ‎ always!  　　}   $$ ଓ‎ ‎‎ ⁠⁾⁠‎ ‎ ⁾
  <p align="center"
   
-![](https://64.media.tumblr.com/ed21fd660b6388aecd478acf4d8a10d4/a41479ee2c190fff-56/s75x75_c1/e588969fceba2155d827b5c848f4de68905a6802.gifv)　:　　 $${\color{#FFC4DA}sign‎ sp‎‎}  \space $$ / ‎ ‎ ‎ $${\color{#FFC4DA}read‎ rentry}  \space $$   　　𓈒　　⁠(⁠ ⁠:⁠ ⁠˘⁠ ⁠∧⁠ ⁠˘⁠ ⁠:⁠ ⁠)
+![](https://64.media.tumblr.com/d7140da40f1b7ae0e424ac3d5d615c49/f30a91219708cbdc-40/s100x200/d0d572088c803c13a9e89789d49a3a3c64d4d554.gifv)　:　　 $${\color{#FFC4DA}sign‎ sp‎‎}  \space $$ / ‎ ‎ ‎ $${\color{#FFC4DA}read‎ rentry}  \space $$   　　𓈒　　⁠(⁠ ⁠:⁠ ⁠˘⁠ ⁠∧⁠ ⁠˘⁠ ⁠:⁠ ⁠)
 <p align="center"
  
 [strawpage](https://spireofdeciet.straw.page/)‎ ‎ ‎ ‎ ‎ ![](https://64.media.tumblr.com/d7cd07e2e7d71d921c2e930156d117ed/c6e913aea8c8a172-c8/s75x75_c1/61bbc6209d0f5e4beed0c26b2568491756b1bf09.gifv)‎ ‎ ‎ ‎ ‎ ‎ ‎ [rentry](https://rentry.co/twohundredshots)
