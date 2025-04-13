@@ -7,7 +7,7 @@
 ![](https://i.postimg.cc/fTSkPt6q/Untitled737-20241028233457.png)
 <p align="center"
   
-![](https://komarev.com/ghpvc/?username=your-github-username&color=F4DEEB&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=your-github-username&color=F4DEEB&label=SHOW+GIGS&abbreviated=true)
 <p align="center"
 
 $${\color{#F4DEEB}𐙚　⁺}  \space $$ juni　!　![](https://i.postimg.cc/hj9Q4LyD/Hello-IMG1721006663820.gif)　‎ she‎‎ ‎ $${\color{#F4DEEB}any}  $$‎ ‎ ‎ 	‎ ‎ :3‎ ‎ ‎ ‎ ‎ ⏝ ⊹ᐢ⠀
