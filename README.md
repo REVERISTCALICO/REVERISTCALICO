@@ -7,7 +7,7 @@
 ![](https://i.postimg.cc/fTSkPt6q/Untitled737-20241028233457.png)
 <p align="center"
   
-![](https://komarev.com/ghpvc/?username=twohundredshots&color=$${\color:#F4DEEB&label=)
+![](https://komarev.com/ghpvc/?username=your-github-username&color=F4DEEB&abbreviated=true)
 <p align="center"
 
 $${\color{#F4DEEB}𐙚　⁺}  \space $$ juni　!　![](https://64.media.tumblr.com/62ab1916e3442cae36340ec52f6ae2e0/3c2c210dbc46ea24-d9/s75x75_c1/2ce8de674f3554cb3a7e37e585d6fb9663cd8cf7.webp)　‎ she‎‎ ‎ $${\color{#F4DEEB}any}  $$‎ ‎ ‎ 	‎ ‎ :3‎ ‎ ‎ ‎ ‎ ⏝ ⊹ᐢ⠀
