@@ -13,7 +13,7 @@
 $${\color{#F4DEEB}𐙚　⁺}  \space $$ juni　!　![](https://i.postimg.cc/hj9Q4LyD/Hello-IMG1721006663820.gif)　‎ she‎‎ ‎ $${\color{#F4DEEB}any}  $$‎ ‎ ‎ 	‎ ‎ :3‎ ‎ ‎ ‎ ‎ ⏝ ⊹ᐢ⠀
 <p align="center"
 
-　⁽‎ ‎ ⁠⁽‎ ‎ ⁠ଘ‎ 	‎ ‎ ‎ ‎ 　aro $${\color{#F4DEEB}ace}  \space $$ ‎ ‎ ‎ ‎ ![](https://64.media.tumblr.com/1c7b7ce14c30591acd981d285bfe4e65/b446c5c66747859d-f0/s75x75_c1/54c4d33c4b9a3fb558428cde8a71bdc235bba98b.gifv)‎‎ ‎ ‎ ‎ ‎ ┊　 $${\color{#F4DEEB}c+h ‎ always!  　　}   $$ ଓ‎ ‎‎ ⁠⁾⁠‎ ‎ ⁾
+　⁽‎ ‎ ⁠⁽‎ ‎ ⁠ଘ‎ 	‎ ‎ ‎i  block $${\color{#F4DEEB}freely}  \space $$ ‎ ‎ ‎ ‎ ![](https://64.media.tumblr.com/1c7b7ce14c30591acd981d285bfe4e65/b446c5c66747859d-f0/s75x75_c1/54c4d33c4b9a3fb558428cde8a71bdc235bba98b.gifv)‎‎ ‎ ‎ ‎ ‎ ┊　 $${\color{#F4DEEB}c+h ‎ always!  　　}   $$ ଓ‎ ‎‎ ⁠⁾⁠‎ ‎ ⁾
 <p align="center"
 
 $${\color{#F4DEEB}◟‿‿◞} $$ ![](https://i.postimg.cc/Z5n8qFDb/IMG-1774.gif)$${\color{#F4DEEB}◟‿‿◞} $$  ‎ ‎ ‎ :‎ ‎ ‎ ‎ ‎  $${\color{#F4DEEB}sign‎ sp‎‎}  \space $$ / ‎ ‎ ‎ $${\color{#F4DEEB}read‎ rentry}  \space $$   　　˙ . ꒷ 　　
