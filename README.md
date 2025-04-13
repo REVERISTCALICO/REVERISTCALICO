@@ -1,16 +1,16 @@
 <p align="center"
   
- ![](https://i.postimg.cc/GhFDvzd4/Untitled2067-20240503091207.png)
+ ![](https://files.catbox.moe/129vm9.png)
 <p align="center"
  
- ![](https://komarev.com/ghpvc/?username=your-github-username&color=8B0000&label=freaks&abbreviated=true)
+ ![](https://komarev.com/ghpvc/?username=your-github-username&color=D6D9FF&label=freaks&abbreviated=true)
 <p align="center"
  
-![](https://i.postimg.cc/BvY0WSnD/gtdk21-1.png)‎‎ ‎ ‎ ‎  [rentry](https://rentry.co/twohundredshots)‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ [strawpage](https://spireofdeciet.straw.page/)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ $${\color{#8B0000}ִֶָ𓂃 ࣪ ִֶָ་༘} \space {\color{#8B0000}࿐}$$
+![](https://i.postimg.cc/BvY0WSnD/gtdk21-1.png)‎‎ ‎ ‎ ‎  [rentry](https://rentry.co/twohundredshots)‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ [strawpage](https://spireofdeciet.straw.page/)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ $${\color{#D6D9FF}ִֶָ𓂃 ࣪ ִֶָ་༘} \space {\color{#D6D9FF}࿐}$$
 <p align="center"
 
- ![](https://i.postimg.cc/B6SHvKdj/Untitled2067-20240503091154.png)
+ ![]()
  <p align="center"
  
-  ![](https://i.postimg.cc/4nkk4TBw/Untitled2067-20240501191018.png)
+  ![](https://files.catbox.moe/1jocc7.png)
 <p align="center"
