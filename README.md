@@ -6,7 +6,7 @@
  ![](https://komarev.com/ghpvc/?username=your-github-username&color=8B0000&label=freaks&abbreviated=true)
 <p align="center"
  
- [rentry](https://rentry.co/twohundredshots)‎ ‎ ‎ ‎ ‎ ![](https://i.postimg.cc/BvY0WSnD/gtdk21-1.png)‎ ‎ ‎ ‎ ‎ [strawpage](https://spireofdeciet.straw.page/)
+![](https://i.postimg.cc/BvY0WSnD/gtdk21-1.png)‎‎ ‎ ‎ ‎  [rentry](https://rentry.co/twohundredshots)‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ [strawpage](https://spireofdeciet.straw.page/)
 <p align="center"
 
  ![](https://i.postimg.cc/B6SHvKdj/Untitled2067-20240503091154.png)
