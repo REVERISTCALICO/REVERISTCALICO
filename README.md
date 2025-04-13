@@ -1,6 +1,6 @@
 <p align="center"
  
- ![](https://komarev.com/ghpvc/?username=your-github-username&color=8B0000)
+ ![](https://komarev.com/ghpvc/?username=your-github-username&color=8B0000&label=freaks)
  
  ![](https://64.media.tumblr.com/4a6b3bf1566c18212b60079191498b71/4ec8493b62f3889b-44/s1280x1920/46f38d450fe3436e59374871c938eb74983c3864.pnj)
 <p align="center"
