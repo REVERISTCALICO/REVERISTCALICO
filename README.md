@@ -14,3 +14,17 @@ $${\color{#FFC4DA}𐙚　⁺}  \space $$ juni　!　![](https://64.media.tumblr.
 <p align="center"
 
 [strawpage](https://spireofdeciet.straw.page/)‎ ‎ ‎ ‎ ‎ ![](https://64.media.tumblr.com/d7cd07e2e7d71d921c2e930156d117ed/c6e913aea8c8a172-c8/s75x75_c1/61bbc6209d0f5e4beed0c26b2568491756b1bf09.gifv)‎ ‎ ‎ ‎ ‎ ‎ ‎ [rentry](https://rentry.co/twohundredshots)
+<p align="center"
+
+![](https://64.media.tumblr.com/3bcb493ede9eed531d02cbce69c87bd5/4bc68a24218aca52-8c/s1280x1920/afce9fa0b9bf3c0d92a41fcefc40bc53b5bc628e.pnj)
+<p align="center"
+
+![](https://64.media.tumblr.com/074baae94127b76c4edd6b14fb463ece/4bc68a24218aca52-4f/s250x400/cd6ec3a89e1d1a52ffb9b94758d61c800147a490.pnj)
+<p align="center"
+
+$${\color{#FFC4DA}she‎ is‎ so‎ me!!!}  \space $$ ‎ ‎ ‎ ‎ 
+<p align="center>
+
+![](https://64.media.tumblr.com/5962a723b3bf25d4466a99853ff775f1/4bc68a24218aca52-c3/s1280x1920/320a8fd5989d6550f6049d52371be6573a62afdd.pnj)
+![](https://64.media.tumblr.com/5962a723b3bf25d4466a99853ff775f1/4bc68a24218aca52-c3/s1280x1920/320a8fd5989d6550f6049d52371be6573a62afdd.pnj)
+<p align="center>
