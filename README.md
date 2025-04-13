@@ -1,4 +1,4 @@
-![](https://i.postimg.cc/WpHXDxbn/dib3.png)
+![]()
 <p align="center"
 
 ![](https://i.postimg.cc/G35HzJSs/Untitled736-20241028233440.png)
@@ -13,13 +13,13 @@
 $${\color{#F4DEEB}𐙚　⁺}  \space $$ juni　!　![](https://i.postimg.cc/hj9Q4LyD/Hello-IMG1721006663820.gif)　‎ she‎‎ ‎ $${\color{#F4DEEB}any}  $$‎ ‎ ‎ 	‎ ‎ :3‎ ‎ ‎ ‎ ‎ ⏝ ⊹ᐢ⠀
 <p align="center"
 
-　⁽‎ ‎ ⁠⁽‎ ‎ ⁠ଘ‎ 	‎ ‎ ‎ ‎ 　aro $${\color{#F4DEEB}ace}  \space $$ ![](https://64.media.tumblr.com/49c50c4c7c59c33405f3d411a5576a4c/3c2c210dbc46ea24-64/s75x75_c1/0f05324837c1514de02a235a4befac40f81e6e90.pnj)‎‎ ‎ ‎ ‎ ‎ ┊　 $${\color{#F4DEEB}c+h ‎ always!  　　}   $$ ଓ‎ ‎‎ ⁠⁾⁠‎ ‎ ⁾
+　⁽‎ ‎ ⁠⁽‎ ‎ ⁠ଘ‎ 	‎ ‎ ‎ ‎ 　aro $${\color{#F4DEEB}ace}  \space $$ ‎ ‎ ‎ ‎ ![](https://64.media.tumblr.com/1c7b7ce14c30591acd981d285bfe4e65/b446c5c66747859d-f0/s75x75_c1/54c4d33c4b9a3fb558428cde8a71bdc235bba98b.gifv)‎‎ ‎ ‎ ‎ ‎ ┊　 $${\color{#F4DEEB}c+h ‎ always!  　　}   $$ ଓ‎ ‎‎ ⁠⁾⁠‎ ‎ ⁾
 <p align="center"
 
 $${\color{#F4DEEB}◟‿‿◞} $$ ![](https://i.postimg.cc/Z5n8qFDb/IMG-1774.gif)$${\color{#F4DEEB}◟‿‿◞} $$  ‎ ‎ ‎ :‎ ‎ ‎ ‎ ‎  $${\color{#F4DEEB}sign‎ sp‎‎}  \space $$ / ‎ ‎ ‎ $${\color{#F4DEEB}read‎ rentry}  \space $$   　　˙ . ꒷ 　　
 <p align="center"
 
-[strawpage](https://spireofdeciet.straw.page/)‎ ‎ ‎ ‎ ‎ ![](https://64.media.tumblr.com/d7cd07e2e7d71d921c2e930156d117ed/c6e913aea8c8a172-c8/s75x75_c1/61bbc6209d0f5e4beed0c26b2568491756b1bf09.gifv)‎ ‎ ‎ ‎ ‎ ‎ ‎ [rentry](https://rentry.co/twohundredshots)
+[strawpage](https://spireofdeciet.straw.page/)‎ ‎ ‎ ‎ ‎ ![](https://64.media.tumblr.com/480bb96ddc8bbd4cfa26e63a3689166d/7abebd50498642e8-e4/s75x75_c1/e3188fb3557db4f24a4d3ef6cb2218d4d1473191.gifv)‎ ‎ ‎ ‎ ‎ ‎ ‎ [rentry](https://rentry.co/twohundredshots)
 <p align="center"
 
 ![]()
