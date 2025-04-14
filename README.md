@@ -19,7 +19,7 @@ $${\color{#F4DEEB}𐙚　⁺}  \space $$ juni　!　![](https://i.postimg.cc/hj9
 $${\color{#F4DEEB}◟‿‿◞} $$ ![](https://i.postimg.cc/Z5n8qFDb/IMG-1774.gif)$${\color{#F4DEEB}◟‿‿◞} $$  ‎ ‎ ‎ :‎ ‎ ‎ ‎ ‎  $${\color{#F4DEEB}sign‎ sp‎‎}  \space $$ / ‎ ‎ ‎ $${\color{#F4DEEB}read‎ rentry}  \space $$   　　˙ . ꒷ 　　
 <p align="center"
 
-[strawpage](https://spireofdeciet.straw.page/)‎ ‎ ‎ ‎ ‎ ![](https://64.media.tumblr.com/480bb96ddc8bbd4cfa26e63a3689166d/7abebd50498642e8-e4/s75x75_c1/e3188fb3557db4f24a4d3ef6cb2218d4d1473191.gifv)‎ ‎ ‎ ‎ ‎ ‎ ‎ [rentry](https://rentry.co/misticbell)
+[strawpage](https://spireofdeciet.straw.page/)‎ ‎ ‎ ‎ ‎ ![](https://64.media.tumblr.com/480bb96ddc8bbd4cfa26e63a3689166d/7abebd50498642e8-e4/s75x75_c1/e3188fb3557db4f24a4d3ef6cb2218d4d1473191.gifv)‎ ‎ ‎ ‎ ‎ ‎ ‎ [rentry](https://rentry.co/mysticbell)
 <p align="center"
 
 ![]()
