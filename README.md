@@ -3,6 +3,9 @@
 ![](https://komarev.com/ghpvc/?username=your-github-username&color=FFB6C1&label=waves&abbreviated=true)
 <p align="center"
   
+[rentry](https://rentry.co/mysticbell)‎‎ ‎ ‎  ‎‎ ‎‎ ‎ ‎  ![](https://64.media.tumblr.com/ce3b122bab227bcaf5e52cbf7435332e/f3866d4fafde6581-b4/s75x75_c1/ebb8ded79c44e26f36c0129631f24b9c5e96b164.gifv)‎ ‎  ‎ ‎ ‎ ‎ [strawpage](https://spireofdeciet.straw.page/)
+<p align="center"
+  
 ![](https://64.media.tumblr.com/c3050120d811db8e4e1cf539f51347cc/3c7512c789785a26-ca/s100x200/d58d0821fc612a749f38bfbc0f578636e7b44a6c.pnj)
 ![](https://64.media.tumblr.com/ba3289d5f870a808167b937e730d58da/3c7512c789785a26-66/s100x200/e49009de9acb65c3509d7242bab9821d9af2a4f1.webp)
 ![](https://64.media.tumblr.com/fac1aa9afc4498031d23001598ecac53/3c7512c789785a26-e9/s100x200/33b1c66e037e179cad901bda9c9d531ec617da5f.gifv)
@@ -39,5 +42,8 @@
 ![](https://64.media.tumblr.com/ddae69ee1bb2e0aa7fb80b01456b6f3d/862b9b9c67435b30-11/s100x200/28e242704085055f77aedaf57f9dce534cdee91e.pnj)
 ![](https://64.media.tumblr.com/b0b01402ab231a351b9134de5bb5188c/2392e7c1f6f7c3e5-b3/s100x200/2073add8f69e38aa01657949471d3ab947d093ba.pnj)
 ![](https://64.media.tumblr.com/39e566ca98a81c947d7df58b8100f3cd/aafc9de618d36345-a7/s100x200/5c736b11391ac54dcedd8b0fb4de91aeb7cd89a9.pnj)
+<p align="center"
+  
+![](https://64.media.tumblr.com/884456453bf2802d2a0c0a4c21682aae/6330040d7643ddba-09/s640x960/baba3923b4aa83fe33ce3de80730c26581e9d9f8.gifv)
 <p align="center"
 
