@@ -4,13 +4,16 @@
   ![](https://komarev.com/ghpvc/?username=your-github-username&color=FFD1DC&label=hi!&abbreviated=true)
 <p align="center"
   
+  
+  
  ![](https://files.catbox.moe/qf9cxr.png) 
  <p align="center"
    
-ᴖᴖ ‎ ‎ ‎ ‎ ‎ [rentry](https://rentry.co/mysticbell)‎‎ ‎ ‎  ‎‎ ‎‎ ‎ ‎‎ ‎ ‎   ![](https://file.garden/ZYrDFz02dgP5Z-Py/Untitled120_20240102120911.png)‎ ‎  ‎ ‎ ‎ ‎ [strawpage](https://spireofdeciet.straw.page/)‎ ‎ ‎ ‎ 𑄽𑄺
+$${\color{pink}ᴖᴖ‎}$$‎ ‎ ‎ ‎ ‎ [rentry](https://rentry.co/mysticbell)‎‎ ‎ ‎  ‎‎ ‎‎ ‎ ‎‎ ‎ ‎   ![](https://file.garden/ZYrDFz02dgP5Z-Py/Untitled120_20240102120911.png)‎ ‎    ‎ ‎ ‎ [strawpage](https://spireofdeciet.straw.page/)‎ ‎ ‎ ‎ $${\color{pink}𑄽𑄺}$$
 <p align="center"
   
-![](https://files.catbox.moe/3w6ju0.gif)   
+ ![](https://files.catbox.moe/3w6ju0.gif)  
+
 <p align="center"
   ‎
   
