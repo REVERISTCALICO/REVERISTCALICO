@@ -4,12 +4,10 @@
   ![](https://komarev.com/ghpvc/?username=your-github-username&color=FFD1DC&label=hi!&abbreviated=true)
 <p align="center"
   
+![](https://files.catbox.moe/qf9cxr.png) 
+<p align="center"
   
-  
- ![](https://files.catbox.moe/qf9cxr.png) 
- <p align="center"
-   
-$${\color{pink}𑄽𑄺}$$‎ ‎ ‎ ‎ ‎ [rentry](https://rentry.co/mysticbell)‎‎ ‎ ‎  ‎‎ ‎‎ ‎ ‎‎ ‎ ‎   ![](https://file.garden/ZYrDFz02dgP5Z-Py/Untitled120_20240102120911.png)‎ ‎    ‎ ‎ ‎ [strawpage](https://HUMANEGO.straw.page/)‎ ‎ ‎ ‎ 
+![](https://64.media.tumblr.com/30ed8ca1ba2b7fd2920b11eb7aaa4588/195a6ca674d87f57-5e/s250x400/2a328b1ed46809bfb11c61ff32b3c025c991e77f.gifv)‎ ‎ ‎ ‎ 
 <p align="center"
   
  ![](https://64.media.tumblr.com/e5440345eab28920a7c33d8cf4c48cd4/ccb6332a8fea02c1-66/s100x200/bce7e6a3855a6ea3ebe7193580f0b280da75ed2b.pnj) ![](https://64.media.tumblr.com/3c95a93732d763457a1a127ba5f16199/ccb6332a8fea02c1-d3/s100x200/2ab218628d9cb1d194f488eaa5b684152fd84749.gifv) ![](https://64.media.tumblr.com/ea4eb26ce1c0ce638067f99efe9178c0/ccb6332a8fea02c1-54/s100x200/e1e0b96de486764a240c15c17c8c7acba56e1683.pnj) 
