@@ -19,3 +19,6 @@
   <p align="center"
     
   ![](https://64.media.tumblr.com/eca199d8b23b4baf5e5676ea2d902be9/8b5e717c4b380cb5-64/s1280x1920/f3a8a7a18466f3f45984f4daa851cdaaeb711b5a.pnj)
+
+
+r: [01](https://www.tumblr.com/hrlyqueen/764176691753025536/elysia-tumblr-discord-layouts-for-anon-like)‎‎ ‎ ‎ [02](https://rentry.co/k4zelf)‎ ‎ ‎ [03](https://www.tumblr.com/rurihana-chan/773365395910508544/elysia-specifically-herrscher-of-human-ego)
