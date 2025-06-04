@@ -1,5 +1,6 @@
 <p align="center"
   
+  ![](https://files.catbox.moe/25c75w.png)
   ![](https://komarev.com/ghpvc/?username=your-github-username&color=FFD1DC&label=hi!&abbreviated=true)
 <p align="center"
 
@@ -16,8 +17,7 @@
   
 ![](https://cdn.discordapp.com/attachments/1116199668297248890/1379665039312814150/Untitled757_20250604110837.jpg?ex=684110b2&is=683fbf32&hm=1420e900cec53984a92446aa46a2e66495df1937782432db03420978829b1728&)
 <p align="center"
-  
-i love me wife :')
-  <p align="center"
+
+  ![](https://files.catbox.moe/unooq7.png)
     
   
