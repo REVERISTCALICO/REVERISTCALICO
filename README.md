@@ -5,7 +5,7 @@
 <p align="center"
 
   
-![](https://64.media.tumblr.com/30ed8ca1ba2b7fd2920b11eb7aaa4588/195a6ca674d87f57-5e/s250x400/2a328b1ed46809bfb11c61ff32b3c025c991e77f.gifv)‎ ‎ ‎ ‎ 
+![](https://blinkies.cafe/b/blinkiesCafe-St.gif)‎ ‎ ‎ ‎ 
 <p align="center"
   
  ![](https://files.catbox.moe/q1uywv.png) ![](https://files.catbox.moe/2zppnj.png) ![](https://files.catbox.moe/jyw88m.png) 
