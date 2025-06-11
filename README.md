@@ -3,7 +3,7 @@
   ![](https://files.catbox.moe/u949ce.png)
   <p align="center"
     
-![](https://komarev.com/ghpvc/?username=your-github-username&color=2A3655&label=❄️)
+![](https://komarev.com/ghpvc/?username=your-github-username&color=2A3655&label=snowed+away)
 <p align="center"
 
  [rentry](https://rentry.co/mysticbell)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [strawpage](https://humanego.straw.page/)
