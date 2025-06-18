@@ -1,15 +1,15 @@
 <p align="center"
   
-  ![](https://files.catbox.moe/u949ce.png)
+  ![](DIV)
   <p align="center"
     
-![](https://komarev.com/ghpvc/?username=your-github-username&color=2A3655&label=snowed+away)
+![](https://komarev.com/ghpvc/?username=your-github-username&color=red&label=ALL+I+NEED)
 <p align="center"
 
  [rentry](https://rentry.co/bootwhill)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [strawpage](https://humanego.straw.page/)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [pronounscc](https://pronouns.cc/@REVERISTCALICO)
  <p align="center"
 
-![](https://64.media.tumblr.com/b75f426918fd3c2a26ad39073895f3ab/192d350a0031da0b-3c/s1280x1920/f479aa642e1a011dd220febc35c74574b719528a.gifv)
+![](https://64.media.tumblr.com/0f0c2233948159c18eceddf066589aaa/a27857025469d6c9-6b/s1280x1920/082bff812f9e9baee127494823c2c1a8d257f76f.pnj)
 <p align="center"
 
-![](https://files.catbox.moe/sunevp.png)
+![](DIV)
