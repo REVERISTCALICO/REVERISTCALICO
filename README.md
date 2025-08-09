@@ -3,7 +3,7 @@
   ![](https://64.media.tumblr.com/85c63493bddc24dfbdc0122798ad68c4/59964896a5938d1f-9f/s1280x1920/61bcf746f20d57b35581bc3b3574a2c3d0b825a6.pnj)
   <p align="center"
 
-![](https://komarev.com/ghpvc/?username=your-github-username&color=FB4087&label=did+you+miss+me?)
+![](https://komarev.com/ghpvc/?username=your-github-username&color=FF6A98&label=did+you+miss+me?)
 <p align="center"
 
 [rentry](https://rentry.co/momongaz)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [strawpage](https://medstaffbrainrot.straw.page/)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [pronounscc](https://pronouns.cc/@REVERISTCALICO)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://eunashyuri.atabook.org/)
