@@ -9,7 +9,7 @@
 [rentry](https://rentry.co/momongaz)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [strawpage](https://medstaffbrainrot.straw.page/)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [pronounscc](https://pronouns.cc/@REVERISTCALICO)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://eunashyuri.atabook.org/)
  <p align="center"
 
-![](https://cdn.discordapp.com/attachments/1116199668297248890/1403696805362798724/Untitled927_20250809190921.png?ex=68987e05&is=68972c85&hm=5680f9649aa96fae6681331f457f77672ab849d9c99a5b2a72d000ed3bf56089&)
+![](https://cdn.discordapp.com/attachments/1311309353705275424/1403701573879730236/Untitled930_20250809192835.png?ex=68988276&is=689730f6&hm=8870af21bd1b629a69a83059051c239753f18885abc6eac9bc6f054c0b57791a&)
 <p align="center"
 
 ![](https://64.media.tumblr.com/e656f20d38b8d3acf0945242edbf5bd9/59964896a5938d1f-c8/s1280x1920/d7af4b1c6af7132cc65fa85ab1a983e1afbcb6c0.pnj)
