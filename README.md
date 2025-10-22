@@ -6,6 +6,7 @@
 ![](https://komarev.com/ghpvc/?username=your-github-username&color=F98897&label=did+you+miss+me?)
 <p align="center"
 
+![](https://64.media.tumblr.com/7ec60f5aa73b544582e8791e6d53938b/98540c94592d258b-b6/s1280x1920/077a115e7f1f740797fc3b047d07dd7954c50159.pnj)
 [rentry](https://rentry.co/momongaz)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [strawpage](https://medstaffbrainrot.straw.page/)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [pronounscc](https://pronouns.cc/@REVERISTCALICO)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://eunashyuri.atabook.org/)
  <p align="center"
 
