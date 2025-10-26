@@ -14,3 +14,9 @@
 <p align="center"
 
 ![](https://64.media.tumblr.com/5615d89cc0d49f8405d6fb7bf6914763/98540c94592d258b-39/s1280x1920/fcce5d6ffd8f30d31bdb009e80407e25e6c8d0e8.pnj)
+<p align="center"
+  
+![](https://file.garden/aMn-jzbg43nKL-ik/album_2025-10-27_00-16-18%20(1).png)
+<p align="center"
+
+me irl
