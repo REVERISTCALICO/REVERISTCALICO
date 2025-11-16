@@ -1,22 +1,19 @@
 <p align="center"
 
-  ![](https://file.garden/aMn-jzbg43nKL-ik/tumblr_7609cc29c8b7008253ed9b086da2c7b4_d46dd843_1280.png)
+  ![](https://file.garden/aMn-jzbg43nKL-ik/Untitled1062_20251116133212.png)
   <p align="center"
 
 ![](https://komarev.com/ghpvc/?username=your-github-username&color=F98897&label=did+you+miss+me?)
 <p align="center"
 
-![](https://64.media.tumblr.com/7ec60f5aa73b544582e8791e6d53938b/98540c94592d258b-b6/s1280x1920/077a115e7f1f740797fc3b047d07dd7954c50159.pnj)
+![](https://file.garden/aMn-jzbg43nKL-ik/Untitled1059_20251116131854.png)
 [rentry](https://rentry.co/momongaz)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [strawpage](https://medstaffbrainrot.straw.page/)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [pronounscc](https://pronouns.cc/@REVERISTCALICO)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://eunashyuri.atabook.org/)
  <p align="center"
 
-![](https://file.garden/aMn-jzbg43nKL-ik/ezgif-6fd68b7692a7a7.gif)
+![](https://file.garden/aMn-jzbg43nKL-ik/Untitled1055_20251116124933.png)
 <p align="center"
 
-![](https://64.media.tumblr.com/5615d89cc0d49f8405d6fb7bf6914763/98540c94592d258b-39/s1280x1920/fcce5d6ffd8f30d31bdb009e80407e25e6c8d0e8.pnj)
+![](https://file.garden/aMn-jzbg43nKL-ik/Untitled1061_20251116133146.png)
 <p align="center"
   
-![](https://file.garden/aMn-jzbg43nKL-ik/album_2025-10-27_00-16-18%20(1).png)
-<p align="center"
 
-me irl
