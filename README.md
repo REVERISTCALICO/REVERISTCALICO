@@ -3,7 +3,7 @@
 ![](https://komarev.com/ghpvc/?username=your-github-username&color=000000&label=art+by+@cloudycloude+on+tumblr)
 <p align="center"
 
-![](https://files.catbox.moe/qcyyrk.png)
+![](https://files.catbox.moe/h23iwc.png)
 <p align="center"
   
 [rentry](https://rentry.co/momongaz)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [strawpage](https://medstaffbrainrot.straw.page/)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [pronounscc](https://pronouns.cc/@REVERISTCALICO)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://eunashyuri.atabook.org/)
