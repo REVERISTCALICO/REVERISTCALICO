@@ -1,6 +1,6 @@
 <p align="center"
   
-![](https://komarev.com/ghpvc/?username=your-github-username&color=000000&label=timejump)
+![](https://komarev.com/ghpvc/?username=your-github-username&color=000000&label=art+by+@cloudycloude+on+tumblr)
 <p align="center"
 
 ![](https://files.catbox.moe/qcyyrk.png)
