@@ -4,7 +4,7 @@
   ![](https://files.catbox.moe/ibi285.png)
   <p align="center"
 
-![](https://komarev.com/ghpvc/?username=your-github-username&color=521A36&label=HURT+PEOPLE?+HURT+PEOPLE!)
+![](https://komarev.com/ghpvc/?username=your-github-username&color=521A36&label=LAPLACES+ANGEL+(HURT+PEOPLE?+HURT+PEOPLE!))
 <p align="center"
 
 ![](https://files.catbox.moe/werd16.png)
