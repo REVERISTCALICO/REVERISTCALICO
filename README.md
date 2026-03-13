@@ -1,4 +1,4 @@
-![](https://files.catbox.moe/n6ghef.png)
+![](https://files.catbox.moe/72uqz4.png)
 <p align="center"
 
   ![](https://64.media.tumblr.com/425d94c11056fb7bddd029d39baa8208/3b57d0c7fbf6a424-29/s1280x1920/c12e76385b6f6e6b61da5d2b65d4c3bb72371663.pnj)
