@@ -4,7 +4,7 @@
   ![](https://64.media.tumblr.com/425d94c11056fb7bddd029d39baa8208/3b57d0c7fbf6a424-29/s1280x1920/c12e76385b6f6e6b61da5d2b65d4c3bb72371663.pnj)
   <p align="center"
 
-![](https://komarev.com/ghpvc/?username=your-github-username&color=521A36&label=LAPLACES+ANGEL+(HURT+PEOPLE?+HURT+PEOPLE!))
+![](https://komarev.com/ghpvc/?username=your-github-username&color=ED84A7&label=♪⁠ヽ⁠(⁠･⁠ˇ⁠∀⁠ˇ⁠･⁠ゞ⁠)+THE+MYSTERY+UNRAVELS)
 <p align="center"
 
 ![](https://64.media.tumblr.com/8a3801e93c3e77e3531c378ba68a59c1/3b57d0c7fbf6a424-05/s1280x1920/d95a4312c6758f70491094532a38edfb32d004d5.pnj)
