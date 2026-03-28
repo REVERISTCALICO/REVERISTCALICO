@@ -10,7 +10,7 @@
   ![](https://64.media.tumblr.com/30796b14e7936a34ca473105e5f23c1a/ddb2b5072b347f9a-82/s640x960/0757a627befb8d9f380055f0003cd414f8641587.gifv)
 <p align="center"
   
-![](https://64.media.tumblr.com/95e25e8d068dd82bfce5791cde366266/ddb2b5072b347f9a-34/s100x200/6e846ab4d4751079188235a5f66544a4ba170bb2.gifv)[ rentry](https://rentry.co/ripplesofthetide)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [strawpage](https://ganqingimpact.straw.page/)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [prns.cc](https://pronouns.cc/@REVERISTCALICO)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://eunashyuri.atabook.org/) ![](https://64.media.tumblr.com/482014eaf9a6cf308cb372d7f2eac2d7/ddb2b5072b347f9a-54/s100x200/6a83ba5c64bafe74c3af394e524d3c925b88ff2a.gifv)
+![](https://64.media.tumblr.com/95e25e8d068dd82bfce5791cde366266/ddb2b5072b347f9a-34/s100x200/6e846ab4d4751079188235a5f66544a4ba170bb2.gifv)‎ ‎ [<img src="https://64.media.tumblr.com/d993b067fba2066035506d04bb55e2d2/ddb2b5072b347f9a-06/s100x200/a7e41911996300b31e12caaaee554f84bef81400.gifv">](https://rentry.co/ripplesofthetide) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [strawpage](https://ganqingimpact.straw.page/)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [prns.cc](https://pronouns.cc/@REVERISTCALICO)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://eunashyuri.atabook.org/) ![](https://64.media.tumblr.com/482014eaf9a6cf308cb372d7f2eac2d7/ddb2b5072b347f9a-54/s100x200/6a83ba5c64bafe74c3af394e524d3c925b88ff2a.gifv)
  <p align="center"
 
 ![](https://64.media.tumblr.com/30796b14e7936a34ca473105e5f23c1a/ddb2b5072b347f9a-82/s640x960/0757a627befb8d9f380055f0003cd414f8641587.gifv)
