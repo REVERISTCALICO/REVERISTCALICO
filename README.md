@@ -1,7 +1,7 @@
 ![](https://64.media.tumblr.com/f5747afd23ecacd3b296918159680405/ddb2b5072b347f9a-33/s1280x1920/58f2e7b18db407b36bd2b5891293a5aa9629a530.pnj)
 <p align="center"
 
-![](https://komarev.com/ghpvc/?username=your-github-username&color=A176C2&label=♪⁠ヽ⁠(⁠･⁠ˇ⁠∀⁠ˇ⁠･⁠ゞ⁠)+RETURN+TO+DUST.)
+![](https://komarev.com/ghpvc/?username=your-github-username&color=A176C2&label=死+RETURN+TO+DUST.)
 <p align="center"
 
 ![](https://64.media.tumblr.com/0366fc2292a38f34b6a6e6bc9e6a9bfe/ddb2b5072b347f9a-a0/s640x960/714f8789fc350b63f15717cf10e0f57716dd0b39.gifv)
