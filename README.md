@@ -1,21 +1,22 @@
-![](https://64.media.tumblr.com/f5747afd23ecacd3b296918159680405/ddb2b5072b347f9a-33/s1280x1920/58f2e7b18db407b36bd2b5891293a5aa9629a530.pnj)
-<p align="center"
+[<img src="https://64.media.tumblr.com/d993b067fba2066035506d04bb55e2d2/ddb2b5072b347f9a-06/s100x200/a7e41911996300b31e12caaaee554f84bef81400.gifv">](https://rentry.co/ripplesofthetide) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎  [<img src="https://64.media.tumblr.com/3f8b210f69698db7318907b0f1d74b3d/ddb2b5072b347f9a-5f/s75x75_c1/8b7175b52bd4597471cec749c9d549b81b545110.gifv">](https://ganqingimpact.straw.page/) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [<img src="https://64.media.tumblr.com/150b9071203a2ddfb4d8282249bf9966/ddb2b5072b347f9a-f6/s75x75_c1/1d78d888779c1609839ea2cbd6f89aa215a117ac.gifv">](https://pronouns.cc/@REVERISTCALICO) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [<img src="https://64.media.tumblr.com/fa02adc3021f4e13d26ba34bbb3879b3/ddb2b5072b347f9a-2e/s75x75_c1/53bc3c660372f84b01b2a3af2482b3b45dc3db10.gifv">](https://eunashyuri.atabook.org/) 
 
-![](https://komarev.com/ghpvc/?username=your-github-username&color=342D96&label=死+RETURN+TO+DUST.)
-<p align="center"
-
-![](https://64.media.tumblr.com/0366fc2292a38f34b6a6e6bc9e6a9bfe/ddb2b5072b347f9a-a0/s640x960/714f8789fc350b63f15717cf10e0f57716dd0b39.gifv)
-<p align="center"
-  
-![](https://64.media.tumblr.com/95e25e8d068dd82bfce5791cde366266/ddb2b5072b347f9a-34/s100x200/6e846ab4d4751079188235a5f66544a4ba170bb2.gifv)‎ ‎ [<img src="https://64.media.tumblr.com/d993b067fba2066035506d04bb55e2d2/ddb2b5072b347f9a-06/s100x200/a7e41911996300b31e12caaaee554f84bef81400.gifv">](https://rentry.co/ripplesofthetide) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎  [<img src="https://64.media.tumblr.com/3f8b210f69698db7318907b0f1d74b3d/ddb2b5072b347f9a-5f/s75x75_c1/8b7175b52bd4597471cec749c9d549b81b545110.gifv">](https://ganqingimpact.straw.page/) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [<img src="https://64.media.tumblr.com/150b9071203a2ddfb4d8282249bf9966/ddb2b5072b347f9a-f6/s75x75_c1/1d78d888779c1609839ea2cbd6f89aa215a117ac.gifv">](https://pronouns.cc/@REVERISTCALICO) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [<img src="https://64.media.tumblr.com/fa02adc3021f4e13d26ba34bbb3879b3/ddb2b5072b347f9a-2e/s75x75_c1/53bc3c660372f84b01b2a3af2482b3b45dc3db10.gifv">](https://eunashyuri.atabook.org/) ‎  ![](https://64.media.tumblr.com/482014eaf9a6cf308cb372d7f2eac2d7/ddb2b5072b347f9a-54/s100x200/6a83ba5c64bafe74c3af394e524d3c925b88ff2a.gifv)  
-  ![](https://64.media.tumblr.com/30796b14e7936a34ca473105e5f23c1a/ddb2b5072b347f9a-82/s640x960/0757a627befb8d9f380055f0003cd414f8641587.gifv)
-<p align="center"
-
-  ![](https://files.catbox.moe/uwmw3e.png)
-  <p align="center"
-  
-![](https://64.media.tumblr.com/30796b14e7936a34ca473105e5f23c1a/ddb2b5072b347f9a-82/s640x960/0757a627befb8d9f380055f0003cd414f8641587.gifv)
-<p align="center"
-
-  ![](https://64.media.tumblr.com/13e6e3b90adc235807d71cb7f8c86268/ddb2b5072b347f9a-57/s1280x1920/00388a12324f1d696bfa0eb18dba9b8782e4449d.pnj)
-  <p align="center"
+![](https://64.media.tumblr.com/d172ec9c3d4c46aea9fba102c64a1bb4/a7f98b60952510a5-fb/s100x200/62cda35b1f121766a28b003095522c9724519644.gifv)
+![](https://64.media.tumblr.com/bc6b486962c8559ed1d91d6cc9d869db/b6661b3c972c5f13-04/s100x200/2b514fd763fcb1aac4e0b148c31cfc89de19b138.pnj)
+![](https://64.media.tumblr.com/a0fa19082e9b9875de52592c05386d9c/d53a12c8983f87eb-ab/s100x200/b7c02c75588639b8ac71ebf9bc137c6ba989b99b.gifv)
+![]([https://64.media.tumblr.com/a1d2e71bd5b8a9290a37f671912d3c18/b6661b3c972c5f13-d8/s100x200/8c0892b88803d8d46393cbd21e8a3df4e2ae9a3e.gifv)
+![](https://64.media.tumblr.com/a1d2e71bd5b8a9290a37f671912d3c18/b6661b3c972c5f13-d8/s100x200/8c0892b88803d8d46393cbd21e8a3df4e2ae9a3e.gifv)
+![](https://64.media.tumblr.com/98c3c968eda1b231f9e7b48ea9e96e0b/3594068b322ca624-f7/s100x200/9d88af1b6c4fb15987243a0c803a24d1016eca29.gifv)![](https://64.media.tumblr.com/4ace9a37e787d91c10a8c6f77969ccf7/aa89517f01352cf3-be/s100x200/990b16424e05fe9882a494c674e8067c2e83d78a.gifv)
+![](https://64.media.tumblr.com/cb1741dabbf2005b5d4510f0e5ab4870/b6661b3c972c5f13-79/s100x200/0c1fdc9f71de9c6219206b4e0c7cee2f989a29c3.jpg)
+![](https://64.media.tumblr.com/aaa393d755c58eca8d125e9cbca71d7b/c149cef108959384-1d/s100x200/c1be62f9194f4c9936b58691b9220860a66740e8.pnj)
+![](https://64.media.tumblr.com/7b2d79090dde120f0df5316ba6e0061a/b19b8466f96477fc-4e/s100x200/649395e1418b013f9ccdf37934c22a36f7fd9f7b.webp)
+![](https://64.media.tumblr.com/5806deab2d191e77692beaf3f46f18ca/d53a12c8983f87eb-f2/s100x200/c5935ffbf35c264a0cbf03225afc08aa7fbfa3fa.gifv)
+![](https://64.media.tumblr.com/a797c782cd11777403d9784c2e87e050/c149cef108959384-d1/s100x200/2ad7f984d39a68570b47f18b41b7f994930a9ae8.gifv)
+![](https://64.media.tumblr.com/fc551c3edb40e4bb54c02666a99ade3c/c149cef108959384-a2/s100x200/d50f35aa1d5fb313cbeeac6ce6502a2f29be40b5.gifv)
+![](https://64.media.tumblr.com/bb978fe56d63231ae397395c91df9dd6/e1e69c014ca2fe99-1f/s100x200/5cb5f7255043c298b96b00253bcb2e4300131af1.pnj)
+![](htps://64.media.tumblr.com/876945b9ad5b0f4ec13dc85602fe33b6/6f072ea04e7b6c72-c7/s100x200/1ce848dfcc4461af9d3971e10acd52404c4f66d3.gifv)
+![](https://64.media.tumblr.com/cbc985f4ef3e7a4139c781f5dd8cac53/d53a12c8983f87eb-ae/s100x200/a1ed568053db7940e3bcc5f1752dcc68ef13c1f8.gifv)
+![](https://64.media.tumblr.com/5fa480def0f0f72c0b58b48e3ee5e03f/c149cef108959384-25/s100x200/a56335fdd518fd7b3e4f553eda79c6a60b53448c.pnj)
+![](https://64.media.tumblr.com/276d813463e83fd37ef00f2b6561d263/c149cef108959384-a5/s100x200/51f832cf7ebcd6d0d4b9aec183e6059c550fb8c8.pnj)
+![](https://64.media.tumblr.com/2077c62ccc915571438d347618ac01e0/c937cea2bae71fd6-9a/s100x200/660e9e7181127ed803f8f9aa4e0710c664cfe2f5.gifv)
+![](https://64.media.tumblr.com/e6e30f0615cdac33da73a7d8b43f7109/d53a12c8983f87eb-b4/s100x200/595dd9b1ff29beb016e3d30fc9cffad16e65b241.gifv)
+![](https://64.media.tumblr.com/e3f6bb559a93bc132fc96d447a4c00d7/d53a12c8983f87eb-61/s100x200/5102576ac5c09c9bbd4c529b1c019af9e926978d.gifv)
