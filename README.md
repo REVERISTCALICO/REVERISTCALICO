@@ -1,5 +1,8 @@
 <p align="center"
   
+![](https://64.media.tumblr.com/4c9676390245f8056ce61300f234cd2d/048193933d9c179c-00/s400x600/a2af52e9eecee60f52617d960964b99795082a32.gifv)
+<p align="center"
+  
 [<img src="https://file.garden/aMn-jzbg43nKL-ik/cooltext505831767575145.gif">](https://rentry.co/ripplesofthetide) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  [<img src="https://file.garden/aMn-jzbg43nKL-ik/cooltext505831776295858.gif">](https://ganqingimpact.straw.page/) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [<img src="https://file.garden/aMn-jzbg43nKL-ik/cooltext505831785473325.gif">](https://pronouns.cc/@REVERISTCALICO) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [<img src="https://file.garden/aMn-jzbg43nKL-ik/cooltext505831792628929.gif">](https://eunashyuri.atabook.org/) 
 <p align="center"
 
