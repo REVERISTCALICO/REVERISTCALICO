@@ -1,7 +1,3 @@
-<p align="center"
-  
-![](https://64.media.tumblr.com/f971d3618ca86eb735c2ef5ce97a193d/22f68dd70b204133-16/s400x600/b1ce7d3516dbfe20c4de01a23b924e0286e63597.gifv)  
-![](https://files.catbox.moe/4v0dhr.png)
 
 <p align="center"
   
