@@ -21,4 +21,4 @@
         
 𝚆𝚑𝚊𝚝 𝚠𝚒𝚕𝚕 𝚢𝚘𝚞 𝚍𝚘?
         
-[> Vriska: Check out the cool Rentry.](https://rentry.co/kawaiilander)
+[> Vriska: Check out this cool Rentry.](https://rentry.co/kawaiilander)
