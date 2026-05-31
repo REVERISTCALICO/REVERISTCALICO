@@ -26,3 +26,6 @@
 <p align="center">
   <img src="https://files.catbox.moe/xx8bjx.jpg" width="400" />
 </p>
+<p align="center"
+        
+𝙾𝚑 𝚢𝚎𝚊𝚑. 𝚈𝚘𝚞'𝚛𝚎 𝚊𝚕𝚜𝚘 𝚍𝚎𝚊𝚍. 𝙰𝚜 𝚑𝚎𝚕𝚕. 𝚂𝚘𝚛𝚛𝚢!
