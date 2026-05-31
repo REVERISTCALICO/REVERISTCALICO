@@ -22,3 +22,7 @@
 𝚆𝚑𝚊𝚝 𝚠𝚒𝚕𝚕 𝚢𝚘𝚞 𝚍𝚘?
         
 [> Vriska: Check out this cool Rentry.](https://rentry.co/kawaiilander)
+
+<p align="center">
+  <img src="https://files.catbox.moe/xx8bjx.jpg" width="400" />
+</p>
