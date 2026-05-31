@@ -17,15 +17,16 @@
 <p align="center"
         
 𝚈𝚘𝚞𝚛 𝙶𝚒𝚝𝚑𝚞𝚋 𝚒𝚜 $${\color{lightbackground}\textsf{\color{#005682}𝚁𝙴𝚅𝙴𝚁𝙸𝚂𝚃𝙲𝙰𝙻𝙸𝙲𝙾}}$$ 𝚊𝚗𝚍 $${\color{lightbackground}\textsf{\color{#005682}𝚢𝚘𝚞𝚛 𝚜𝚝𝟾𝚖𝚎𝚗𝚝𝚜 𝚝𝚎𝚗𝚍 𝚝𝚘 𝟾𝚎 𝚓𝚞𝚜𝚝 𝚊 𝚕𝚒𝚝𝚝𝚕𝚎 𝟾𝚒𝚝 𝚘𝚟𝚎𝚛𝚍𝚛𝚊𝚖𝚊𝚊𝚊𝚊𝚊𝚊𝚊𝚊𝚝𝚒𝚌.}}$$
-<p align="center"
-        
-𝚆𝚑𝚊𝚝 𝚠𝚒𝚕𝚕 𝚢𝚘𝚞 𝚍𝚘?
-        
-[> Vriska: Check out this cool Rentry.](https://rentry.co/kawaiilander)
-
 <p align="center">
   <img src="https://files.catbox.moe/xx8bjx.jpg" width="400" />
 </p>
 <p align="center"
         
 𝙾𝚑 𝚢𝚎𝚊𝚑. 𝚈𝚘𝚞'𝚛𝚎 𝚊𝚕𝚜𝚘 𝚍𝚎𝚊𝚍. 𝙰𝚜 𝚑𝚎𝚕𝚕.
+<p align="center"
+        
+𝚆𝚑𝚊𝚝 𝚠𝚒𝚕𝚕 𝚢𝚘𝚞 𝚍𝚘?
+        
+[> Vriska: Check out this cool Rentry.](https://rentry.co/kawaiilander)
+
+
